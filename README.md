@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AYUSHSAHU23
-- 🌱 I’m currently learning Data science and Analytics.
+- 🌱 I’m currently seeking opportunity in data Analytics domain.
 - 👀 I’m interested in Coding,Reading books,listning podcast
 - 📫 How to reach me: ayushsahu5900@gmail.com
